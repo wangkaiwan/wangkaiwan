@@ -22,4 +22,4 @@ Before coming to UTSW, I worked with Dr. [Xuanqin Mou](https://gr.xjtu.edu.cn/we
 My research interest includes medical image analysis, cancer treatment outcome prediction, radiomics, and medical imaging.
 <br/>
 <br/>
-🔥🔥🔥🔥🔥🔥 **I'm preparing for Medical Physics Residency Application!** 
+🔥🔥🔥🔥🔥🔥 I'm preparing for **Medical Physics Residency** Application! 
