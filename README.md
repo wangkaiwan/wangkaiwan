@@ -20,4 +20,4 @@ I am a PhD student in Biomedical Engineering Program **Medical Physics** Track a
 My research interest includes medical image analysis, cancer treatment outcome prediction, radiomics, and medical imaging. I have published more than 10 papers in medical physics related journals.
 <br/>
 <br/>
-🔥⚡🔥⚡🔥⚡ **I'm preparing for Medical Physics Residency Application** 
+🔥🔥🔥🔥🔥🔥 **I'm preparing for Medical Physics Residency Application!** 
